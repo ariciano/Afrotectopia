@@ -1,2 +1,1 @@
-# Afrotectopia
-website and work
+Ariciano is an interdisciplinary artist + designer, creative technologist, researcher and educator. Her current work primarily explores speculative design, experimental pedagogy, imaginative uses of technology for human-computer interaction, digital activism, and Black empowerment. She is founder and producer of new media arts, culture and technology festiva,l Afrotectopia, a research fellow at New York University's Interaction Telecommunications program, full time educator and pedagogy designer, professor of Digital Activism, and resident DJ - amongst much more.
